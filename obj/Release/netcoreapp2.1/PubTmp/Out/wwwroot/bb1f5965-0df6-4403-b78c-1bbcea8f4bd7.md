@@ -1,1 +1,0 @@
-# Traduzir isso aqui!&#xD;&#xA;&#xD;&#xA;## Tradu&#xE7;&#xE3;o de exemplo&#xD;&#xA;&#xD;&#xA;Isso &#xE9; uma tradu&#xE7;&#xE3;o!
